@@ -62,6 +62,6 @@ Mais certains, en silence,
 apprennent à user leurs chaînes  
 jusqu’à sentir qu’elles tombent.  
 
-Ce jour-là, ils ne deviennent pas rois.  
+Ce jour-là, ils ne deviennent pas **surhommes**.  
 
 Ils deviennent **hommes**.
