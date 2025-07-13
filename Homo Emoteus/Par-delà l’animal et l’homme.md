@@ -94,6 +94,6 @@ Chaque jour est un combat.
 Et si tu ne le livres pas,  
 tu resteras ce que tu as toujours été :
 
-**Un animal qui rêve d’être Dieu,  
+**Un animal qui rêve d’être surhomme,  
 mais qui n’a pas encore réussi  
 à devenir Homme.**
