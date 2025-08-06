@@ -18,7 +18,7 @@ pour qui le bien coule de source.
 Leur cœur s’incline sans violence.  
 Ils tendent la main  
 comme on respire.  
-Et ils ne savent même pas qu’ils font le bien.
+Et ils ne savent même pas qu’ils font le bien.  
 Est ce le bien quand on ne veut pas faire le bien ?
 
 ---
